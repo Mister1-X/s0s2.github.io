@@ -1,1 +1,1 @@
-# s0s2.github.io
+# S0S.github.io
